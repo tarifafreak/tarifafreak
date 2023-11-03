@@ -1,16 +1,19 @@
-### Hi there 👋
+Moin! Welcome to my LinkedIn page!
 
-<!--
-**tarifafreak/tarifafreak** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I started my career as Sales Manager in Hospitality industry, later on acquired a B.Sc. in Sociology, started over in Adult Education - now I'm based in Hamburg since 2009 already and deeply into all things HR with focus on IT / Tech roles. And I love both sides of that, honestly! Even learned some coding in the meantime 😎
 
-Here are some ideas to get you started:
+Want to talk about job opportunities, get resume or career advice, look at IT from a recruiter's perspective, or simply talk about nerdy stuff like Video Games  and make friends? Let's get in touch 😊
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+What I do when I'm not busy working? 
+
+📚 📖 Fiction & non-fiction (mostly Fantasy, though 😂)
+🎲🃏 Board & Card Games (Munchkin is GREAT)
+🐉⚔️ Pen & Paper RPG (D&D 5e, currently being Kangorg the Barbarian 😂)
+🕹️🎮 PlayStation and Nintendo Switch (Elder Scrolls Online, Dead by Daylight, Splatoon & Animal Crossing addict)
+🏸 Badminton
+🌏 🛣️ (Amsterdam is always worth a visit)
+🏟️⚽ Borussia Mönchengladbach 🖤💚
+🎟️🎤🎸 attending concerts (Metal, Alternative)
+
+Some necessary disclaimers...
+Please note: anything I publish on this platform does not represent the position or opinion of EDEKA / EDEKA DIGITAL as a company (should be obvious but... just to be sure 😬)

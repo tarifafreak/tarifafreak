@@ -12,17 +12,17 @@ You can also choose to register for our [Talent Community](https://digital.edeka
 
 📚 📖 Fiction & non-fiction (mostly Fantasy, though 😂)
 
-🎲🃏 Board & Card Games (Munchkin is GREAT)
+🎲🃏 Board & Card Games ([Munchkin](https://munchkin.game) is GREAT)
 
 🐉⚔️ Pen & Paper RPG (D&D 5e, currently being Kangorg the Barbarian 😂)
 
-🕹️🎮 PlayStation and Nintendo Switch (Elder Scrolls Online, Dead by Daylight, Splatoon & Animal Crossing addict)
+🕹️🎮 PlayStation and Nintendo Switch (Elder Scrolls Online, Dead by Daylight, Diablo, Splatoon & Animal Crossing addict)
 
 🏸 Badminton
 
 🌏 🛣️ (Amsterdam is always worth a visit)
 
-🏟️⚽ Borussia Mönchengladbach 🖤💚
+🏟️⚽ [Borussia Mönchengladbach](https://www.borussia.de) 🖤💚
 
 🎟️🎤🎸 attending concerts (Metal, Alternative)
 

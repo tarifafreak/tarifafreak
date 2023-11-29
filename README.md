@@ -16,7 +16,7 @@ You can also choose to register for our [Talent Community](https://digital.edeka
 
 🐉⚔️ Pen & Paper RPG (D&D 5e, currently being Kangorg the Barbarian 😂)
 
-🕹️🎮 PlayStation and Nintendo Switch ([Elder Scrolls Online](https://www.elderscrollsonline.com), [Dead by Daylight](https://deadbydaylight.com/), [Diablo](https://diablo4.blizzard.com), [Splatoon](https://splatoon.nintendo.com) & Animal Crossing addict)
+🕹️🎮 PlayStation and Nintendo Switch ([Elder Scrolls Online](https://www.elderscrollsonline.com), [Dead by Daylight](https://deadbydaylight.com), [Diablo](https://diablo4.blizzard.com), [Splatoon](https://splatoon.nintendo.com) & Animal Crossing addict)
 
 🏸 Badminton
 

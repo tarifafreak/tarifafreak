@@ -14,7 +14,7 @@ You can also choose to register for our [Talent Community](https://digital.edeka
 
 🎲🃏 Board & Card Games ([Munchkin](https://munchkin.game) is GREAT)
 
-🐉⚔️ Pen & Paper RPG (D&D 5e, currently being Kangorg the Barbarian 😂)
+🐉⚔️ Pen & Paper RPG ([D&D 5e](https://dnd.wizards.com), currently playing "Kangorg the Barbarian" 😂)
 
 🕹️🎮 PlayStation and Nintendo Switch ([Elder Scrolls Online](https://www.elderscrollsonline.com), [Dead by Daylight](https://deadbydaylight.com), [Diablo](https://diablo4.blizzard.com), [Splatoon](https://splatoon.nintendo.com) & [Animal Crossing](https://animalcrossing.nintendo.com) addict)
 

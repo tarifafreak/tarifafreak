@@ -16,7 +16,7 @@ You can also choose to register for our [Talent Community](https://digital.edeka
 
 🐉⚔️ Pen & Paper RPG (D&D 5e, currently being Kangorg the Barbarian 😂)
 
-🕹️🎮 PlayStation and Nintendo Switch (Elder Scrolls Online, Dead by Daylight, Diablo, Splatoon & Animal Crossing addict)
+🕹️🎮 PlayStation and Nintendo Switch ([Elder Scrolls Online](https://www.elderscrollsonline.com), [Dead by Daylight](https://deadbydaylight.com/), [Diablo](https://diablo4.blizzard.com), [Splatoon](https://splatoon.nintendo.com) & Animal Crossing addict)
 
 🏸 Badminton
 
@@ -24,7 +24,7 @@ You can also choose to register for our [Talent Community](https://digital.edeka
 
 🏟️⚽ [Borussia Mönchengladbach](https://www.borussia.de) 🖤💚
 
-🎟️🎤🎸 attending concerts (Metal, Alternative)
+🎟️🎤🎸 attending concerts (a lot of Metal and Alternative bands like Pearl Jam or Amon Amarth, but I also like Daft Punk, Kraftwerk, Aphex Twin, Jazz, and much more stuff)
 
 **Some necessary disclaimers...**
 

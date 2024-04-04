@@ -32,4 +32,4 @@ For Permanent roles, click here: https://edeka.talentry.com/app/talentv2/landing
 
 **Some necessary disclaimers...**
 
-Please note: anything I publish on this platform does not represent the position or opinion of EDEKA / EDEKA DIGITAL as a company (should be obvious but... just to be sure 😬)
+Please note: anything I publish on this platform does not represent the position or opinion of EDEKA / EDEKA IT as a company (should be obvious but... just to be sure 😬)

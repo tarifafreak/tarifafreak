@@ -7,6 +7,7 @@ Currently, I am working as a Tech Recruiter for [EDEKA IT ](https://digital.edek
 Want to talk about job opportunities, get resume or career advice, look at IT from a recruiter's perspective, or simply talk about nerdy stuff like Video Games  and make friends? Let's get in touch 😊
 
 You can also choose to register for our Talent Community:
+
 For Freelance roles, click here: https://edeka.talentry.com/app/talentv2/landingpage/1371/e763jsl0tebq1c1traqd3o
 
 For Permanent roles, click here: https://edeka.talentry.com/app/talentv2/landingpage/1371/10fgop19yq8wdmsn10ew52

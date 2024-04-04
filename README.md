@@ -8,6 +8,7 @@ Want to talk about job opportunities, get resume or career advice, look at IT fr
 
 You can also choose to register for our Talent Community:
 For Freelance roles, click here: https://edeka.talentry.com/app/talentv2/landingpage/1371/e763jsl0tebq1c1traqd3o
+
 For Permanent roles, click here: https://edeka.talentry.com/app/talentv2/landingpage/1371/10fgop19yq8wdmsn10ew52
 
 **What I do when I'm not busy working?** 
